@@ -3,6 +3,8 @@
 > *"He's one of the best drivers on the grid that never had the opportunity to have a proper car underneath him."*
 > — Fernando Alonso on Nico Hülkenberg, 2025 British Grand Prix
 
+![F1 Best Losers Preview](GIFf1bestlosers.gif)
+
 [![Watch the video](https://img.shields.io/badge/Watch-Video%20Overview-red?logo=video)](https://www.veed.io/view/d123407c-70ee-4c96-b9a4-3da279598a00?source=Homepage&panel=share)
 
 ---
